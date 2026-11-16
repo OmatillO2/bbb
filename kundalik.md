@@ -1,1 +1,1 @@
-# Mening kundaligim - Omatillo
+# Omatilloning shaxsiy kundaligi
